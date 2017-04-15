@@ -58,4 +58,4 @@ No themes!  Just bring yourself for some dancing!
 ![](http://cultofthepartyparrot.com/parrots/reversecongaparrot.gif)
 
 **And now let's party hard!!**
-![](https://media.giphy.com/media/ZUomWFktUWpFu/giphy.gif)
+![](https://media.giphy.com/media/EfNHICThhirD2/giphy.gif)
